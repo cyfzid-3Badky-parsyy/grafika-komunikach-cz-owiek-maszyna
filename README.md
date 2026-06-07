@@ -1,0 +1,1 @@
+# grafika-komunikach-cz-owiek-maszyna
